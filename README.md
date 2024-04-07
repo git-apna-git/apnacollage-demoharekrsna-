@@ -1,4 +1,4 @@
 # apnacollage-demoharekrsna-
-Author -lord krsna
+Author -lord krsna(supreme personality of godhead)
 <br>
 git-apna-git
